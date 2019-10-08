@@ -1,1 +1,0 @@
-# Chasen Le Hara
